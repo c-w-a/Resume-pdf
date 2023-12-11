@@ -1,1 +1,1 @@
-![Chris_Anglin-resume](https://github.com/c-w-a/Resume-pdf/assets/108597555/7d299ef6-00bb-4237-a314-eb7d347eeab7)
+![Chris_Anglin-resume](https://github.com/c-w-a/Resume-pdf/assets/108597555/2fbf337d-c8b0-4b9b-8e92-d01b223eabb4)
